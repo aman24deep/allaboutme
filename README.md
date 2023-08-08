@@ -4,7 +4,7 @@
 
 🌱 Learning, growing, and coding my way to greatness.
 
-🚀 Turning coffee into code since [Year of your coding journey].
+🚀 Turning coffee into code since 2018.
 
 🌈 Embracing challenges, turning them into opportunities.
 
